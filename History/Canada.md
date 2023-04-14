@@ -1,5 +1,7 @@
 ## The History of Canada 🍁
 
+---
+
 ### Indigenous Peoples and Early Explorers 🌲🛶
 
 - Indigenous peoples have lived in what is now Canada for thousands of years, with diverse cultures and traditions.
